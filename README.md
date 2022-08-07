@@ -20,6 +20,10 @@ https://www.youtube.com/channel/UCmmBu4WDEoCfJEmNx-rmZpQ
  اگر سوالی داشتی توی بخش کامنت های یوتیوب بپرس حتما جواب میدم 🤌 .⁣
  
  
+ 
+ 
+ ![Black   Green Minimalist Tropical Forest Cover Youtube Chanel Art (1)](https://user-images.githubusercontent.com/98395557/183306879-287ebf67-6af1-44de-af27-869e7bf2e5ec.png)
+
  ⁣
 
 
